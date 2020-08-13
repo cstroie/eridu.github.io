@@ -1,2 +1,2 @@
 # eridu.github.io
-Far away home
+My far away home
